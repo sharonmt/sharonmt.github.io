@@ -1,2 +1,0 @@
-# sharonmt.github.io
-Hellooo !!!
